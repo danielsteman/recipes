@@ -1,16 +1,16 @@
 ### Ingredients
 
-2 tbsp light cooking oil
-2-3 large garlic cloves finely chopped
-1 medium onion  finely chopped
-1/2 tsp red chilli powder
-1/4 tsp turmeric powder
-1/2 tsp coriander powder
-salt to taste
-1 tbsp tomato paste
-2 medium tomatoes finely chopped
-1 tsp tamarind paste
-6 large boiled eggs peeled and cut in half length-wise
+- 2 tbsp light cooking oil
+- 2-3 large garlic cloves finely chopped
+- 1 medium onion  finely chopped
+- 1/2 tsp red chilli powder
+- 1/4 tsp turmeric powder
+- 1/2 tsp coriander powder
+- salt to taste
+- 1 tbsp tomato paste
+- 2 medium tomatoes finely chopped
+- 1 tsp tamarind paste
+- 6 large boiled eggs peeled and cut in half length-wise
 
 ### Instructions
 Heat oil in a wide pan and saute garlic and onions till soft and lightly browned. Add in the spices, salt and tomato paste, and fry for a few seconds.  
